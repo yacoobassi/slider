@@ -1,4 +1,7 @@
 # slider
 
-https://github.com/yacoobassi/slider/assets/103058000/4dae95cc-8c2b-4c10-94db-d4cb358d3b8f
+
+
+
+https://github.com/yacoobassi/slider/assets/103058000/f54513ae-90f6-42b5-93d9-9dc41e74a892
 
